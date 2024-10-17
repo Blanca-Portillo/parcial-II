@@ -14,3 +14,6 @@ XAVIER ALEXANDER PÉREZ BONILLA
 KEVIN ALEJANDRO ZELAYA CHAVEZ 
 
 </p>
+<p> 
+por si la presentacion no le carga, aca le dejamos el link: https://www.canva.com/design/DAGTjw4xjeU/QypkwCkDlmthvc5oMFrw6Q/edit
+</p>
